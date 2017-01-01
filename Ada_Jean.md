@@ -22,6 +22,20 @@ As she stepped out of the lift, it was as though her logical mind got back and s
 
 ----
 
+The melancholy built up as she starts ignoring it. The torrent of emotions all pent up within, waiting for a trigger.
+
+She read and re-read the messages again and again, hoping to see a new reply for her. Nothing. It had been a week since they lost contact and the last words she left were, "I will miss you". The eventual modal verb kept the linguist within thinking. At least that the thousands spent on the linguistic major was worth something.
+
+The phone held on her hand vibrated. With excitement, she opened the flap to find yet another spam email. Frustrated, she sat on the park bench and sent another message to the blackhole number, knowing that there won't be a reply but hoping to receive one. This time, it's a voice message.
+
+"Jean, it's not funny anymore. I know you're listening to this voicemail. Please call back! [Sniffles]" She stopped the recording and sent the message before breaking into tears.
+
+And out comes a hand with a Burberry checkered handkerchief, the same design as what Jean had. "Here, wipe it off," the voice said as the silhouette walked away, "Keep the handkerchief, please take care."
+
+It's not Jean, at least it didn't sound like her. The phone vibrated once again. Puzzle at the coincidence, she stared blankly into the air before opening the phone flap. At an instance, the vibration ceased.
+
+A missed call from Jean's number...
+
 
 The madness was turning into hysteria. The constant swiping down of the screen in the hope that an updated message would appear. Ada stared blankly at the screen while seeing the colored wheel spun round and round. Intuitively, she knew that Jean heard the voice mail but she choose to think that the missed called is nothing but her imaginary figment. Still the fact remained, someone used Jean's phone to dial her number.
 
