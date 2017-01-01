@@ -1,5 +1,7 @@
 # Scraps
 
+Scraps of stuff, I wrote. 
+
 Ada
 ====
 
