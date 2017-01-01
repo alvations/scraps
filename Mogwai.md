@@ -1,5 +1,4 @@
 The mogwai trapped within me demands release. 
-
 Like fetal movement, the mogwai nudges my heart. Thud, thud, thud...
 
 The mogwai couldn't grasp what's outside of me, 
