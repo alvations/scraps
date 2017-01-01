@@ -14,6 +14,8 @@ He is the average guy that you see in the financial sector, sharp feragamo suit,
 
 "Scotch on the rock," I sit on the bar counter away from the clusters. Sometimes I wonder why aren't there any people outside of Gatz at the Bank on a Friday evening. I wonder, "Hmmm, the coming is near".
 
+----
+
 The Feds arrived. Nothing was ever right when the Federal Bankers arrived at the trading floor, "Gatz people out now." It was my third day as an energy evangelist after passing the series 7 exam, my 8th week at Gatz Sun Corporation, Inc.
 
 I had heard the Enron tale before, I had seen countless remakes of Wall Street starring Michael Douglas as the protagonist, antagonist and anyothergonist that the script writes can think of. But that was my first time seeing it live.
