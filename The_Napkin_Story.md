@@ -1,0 +1,15 @@
+Slacking on the chair at McDonalds, I read my book. But the constant chattering around me tempted me to peoplewatching. A terrible habit I've picked up; eavesdropping on people, listening to their accent and guessing their origins. Americans speaking American English, Singaporeans speaking Singlish, a Singaporean Indian student reading a Chinese paragraph from an assessment book, and Germans eating their ice cream silently.
+ 
+"How do I know they're Germans?" you asked. 
+ 
+Whirling their oreo-filled sundae, wiping each spot that touches the lips but the mouth, all done like synchronized swimming. Such meticulous actions, such silent desserts, such non-eye contact. And their silence broke with, "Was sollen wir als nächstes tun?". Definitely German tourists tired of the myraid of shopping havens and seeking solace in the alfresco seats with McDonalds sundae on a not so hot summer afternoon.
+ 
+One starts to wonder the meaning of life when seeing others skiving their Saturday afternoon chattering, munching, and silently licking sundaes off the spoon. And I, adhering to the observer's paradox, participate in this menial yet necessary task of slacking off the Saturday afternoon; reading, peoplewatching, thinking and being, with a cup of coke light basked in the cloudy summer afternoon.
+ 
+Still peoplewatching, I stood amazed by the amount of work ladies take to remain pretty. Right ahead, a girl in her 20s, brushing her hair incessantly into the pocket mirror skinned like a bar of chocolate, "Mirror mirror like a choc, whose hair is like Goldilocks?". Turning to the left a teenage girl counting the three pimples on her forehead repeatedly, frowning at the patches of acne on the cheek. I turned around, an office lady touching up her makeup with an arsenal of powder with an oval shaped mirror. To the right, there's nothing. It's the pathetic grey wall ogling at the plethora of colors on the faces of the ladies surrounding it.
+ 
+Just as I wonder about the perplexities to females' endless need to maintain their beauty, a tinsy bird landed on the ground next to my seat. Different from the ladies, the bird was uncouth in its looks, messed up feathers, random unsightly spots, portraying a crumpled look to the clothes that its creator provided. Yet the bird is freer than man, and woman too. Free to roam, free to eat the crumbs left by humans, free to poop anywhere in public, unrestricted by legislation. Such freedom to live life cannot be fathom by us, mere mortals, who requires sustenance bought with man-made currencies, career advancements forged with loads of hardship and slavery to the world of material.
+ 
+Like the wind, the bird came and went. Yet the summer heat deters the coming of any sort of wind, not even a hint of breeze in sight. It is time to leave this heat and seek refuge in the unnatural, unenvironment igloo, the shopping mall.
+ 
+I started out wanting to read my book and sure I did, 4 pages. Also, I've written 5 pages on these McDonalds napkins. Peoplewatching is poisonous to you who yearns to read. Peoplewatching is definitely unenvironmental if you are prone to writing on napkins in a fast-food restaurant.
