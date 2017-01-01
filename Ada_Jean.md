@@ -1,3 +1,28 @@
+She looked at the loot of her retail therapy and the initial joy her new Christian Louboutin pumps and Hugo Boss pants suit dissipated as she was on her way back to the empty apartment where her mind will begin to run wild with anxiety.
+
+Jean has minimum passion for her paralegal job but she excels in the heap of paper-trawling. In fact, she excels in everything, graduated magna cum laude in high school as a triple-science (biology, chemistry, physics) track student and egregia cum laude in her law degree from Brown University.
+
+Returning home, now she is a paralegal in Lee and Tan LLP, a rising practice with high profile cases, the person who stole Sarin from GSK at Tuas, the alleged politician who won a by-election and was put to jail thereafter on counts of sedation against the government, the "town council against a carton of egg" corruption case where the deinujla town council was accused of corruption when accepting a carton of egg from one of resident. All these high profile cases, handled by Jean and her mentor, Mr Tan Joo Boon, an ex-convict who went against all odds to pass the bar exam.
+
+Another lady pushing the grocery trolley entered and pressed the button to the 4th storey. Jean entered the lift as the other lady walked towards the back of the lift. Jean pressed the 9th and they did the awkward elevator shuffle where people re-position themselves in the order of their anticipated exit. She looked at Jean's paper bags gleaming with envy. Jean was unconcerned, distracted by the torrent of feelings she was feeling within.
+
+The lift beeped as the door opened on the 4th, off went the lady. Jean stood thoughtful as the door closed upon the time limit, beeping. She held her mobile phone swiping to wake it, another missed call from Ada, this time with a voice message.
+
+She played it, "Jean, it's not funny anymore. I know you're listening to this voicemail. Please call back! [Sniffles]"
+
+Jean remained emotionless. If it was 5 years ago, she would have broke into tears and pushed the green call-back icon immediately. But with her legal experience, she was taught to remain calm in all circumstances, she played it again. As though hoping that the message in the voicemail would change.
+
+"Jean, it's not funny anymore. I know you're listening to this voicemail. Please call back! [Sniffles]," the same message.
+
+She did it again and the lift started beeping at the 9th storey. Distracted, her analytical mind slipped and the emotions took over for a moment as she punched the call-back icon.
+
+As she stepped out of the lift, it was as though her logical mind got back and she cancelled the call and turned it off. Frantically looking for her keys, she dropped it twice as she opened the gate and the main door. Slamming the door shut, she kicked off her Onizuka shoes, she sat on the couch, weeping in the fetal position. It was one of the few time she cried in recent years. It was also the first time she cried since she left Ada.
+
+"It is for the better, it is for the better," she repeated out loud to herself, "She deserves better".
+
+----
+
+
 The madness was turning into hysteria. The constant swiping down of the screen in the hope that an updated message would appear. Ada stared blankly at the screen while seeing the colored wheel spun round and round. Intuitively, she knew that Jean heard the voice mail but she choose to think that the missed called is nothing but her imaginary figment. Still the fact remained, someone used Jean's phone to dial her number.
 
 She paced around the living room, swiping the phone in vain. She made calls to Jean and they ended up in the same message, "The mobile number you have just called is not available". She started to send short-fire messages.
